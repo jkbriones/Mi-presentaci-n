@@ -1,2 +1,0 @@
-# Mi-presentaci-n
-descripición
